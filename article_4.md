@@ -1,4 +1,6 @@
 ## Personal/Creative Achievements
+![A memory box I hand-painted](crafts.jpg)
+
 - Improve my art skills, anatomy, and update my art commission pages (hopefully I'll continue doing art commissions as a side job!)
 - Write a song with my partner because he plays guitar, and learn guitar from him
 - Learn basic life skills like plumbing and woodworking, build my own furniture, and learn how to renovate/personalize my own home
