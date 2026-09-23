@@ -1,5 +1,5 @@
 ## General Life Goals
-![Cute Baby Maine coon cat](Maine coon kitten.jpg)
+![Cute Baby Maine coon cat](MaineCoonKitten.jpg)
 
 - Own a cat (one big, fluffy Maine coon)
 - Be financially independent and start my life with my partner
