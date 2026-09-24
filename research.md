@@ -5,7 +5,9 @@
   
 Portfolios contain self and work assessments, progress/test results, skills, and overall demonstration of the work they've completed as well as the outcome (Oudkerk Pool et al., 2020). A portfolio's goal is to foster student development, provide evidence of the skills learned, reflect those skills and their competency, and give viewers insight into progress, achievements, and the learning process (Oudkerk Pool et al., 2020). In comparison, my personal goals, if achieved, express a life lived; more specifically, a life I desire to achieve, benchmarks such as living with loved ones, having fun with them, making as many memories as possible, along with skills I'd like to learn and things I'd love to do. 
 
-Thus, goals come down to perspective. Both can be correct depending on what they're looking for; in the end, both portfolio goals and personal goals contain a desired pathway to walk, whether it be academic development or an improvement in a person's quality of life. 
+Additionally, portfolios require reflective writing. This reflective writing is meant to enhance student skills, and the model used consists of thought and action, attentiveness, a frame, a view towards change, and self-assessment (Cleveland, 2018). Similarly, when producing my own goals, I follow those same rules because ultimately these goals are made as a guide and benchmarks on whether my quality of life is improved on my personal terms. Do I have a view towards change? Yes, there is progression; I want to learn and improve my artistic skills, learn and graduate with my degree. To do so, I need action. There may be a gap between portfolio goals and personal goals; however, they ultimately lead to one thing: a change. 
+
+Thus, what dictates whether a goal is valuable or meaningful comes down to a matter of perspective. Both can be correct depending on what they're looking for; in the end, both portfolio goals and personal goals contain a desired pathway to walk, whether it be academic development or an improvement in a person's quality of life. 
 
 
 
